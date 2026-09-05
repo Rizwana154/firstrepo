@@ -1,0 +1,11 @@
+hbgnhbhh
+  njnjn
+  njnj
+     bjn
+    bnjn
+     bjn
+    bhh
+     hbjn
+    nhu
+    bhbh
+    bhbh
